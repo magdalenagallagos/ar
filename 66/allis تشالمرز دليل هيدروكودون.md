@@ -1,0 +1,50 @@
+# allis تشالمرز دليل هيدروكودون
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![هيدروكودون ويكيبيديا، الموسوعة الحرة](http://static.shibang-china.com/all-800x300/236.jpg)</a>
+
+## هيدروكودون ويكيبيديا، الموسوعة الحرة
+يعتبر الهيدروكودون Hydrocodone أحد أدوية مجموعة الأفيون والذي يستخدم على نطاق واسع لتثبيط السعال وعلاج الألم.وهذا الدواء أحد الأدوية التي يساء استخدامها بشكل شائع مما يؤدي إلى أمراض خطيرة وإصابات أو الوفاة.الجرعات العالية قد ينتج عنها مشاكل في التنفس أو توقف للقلب واختلال للوظائف الحركية والذهنية.شددت الحكومة الأميركية.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![هيدروكودون موسوعة العلوم العربية](http://static.shibang-china.com/all-800x300/146.jpg)</a>
+
+## هيدروكودون موسوعة العلوم العربية
+16 أيلول (سبتمبر) 2012.يعتبر الهيدروكودون Hydrocodone احد أدوية مجموعة الأفيون والذي يستخدم على نطاق واسع لتثبيط السعال وعلاج الألم.وهذا الدواء احد الأدوية التي يساء استخدامها بشكل شائع مما يؤدي إلى أمراض خطيرة وإصابات أو الوفاة.الجرعات العالية قد ينتج عنها مشاكل في التنفس أو توقف للقلب واختلال للوظائف الحركية والذهنية.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![هيدروكودون و أسيتامينوفين الموسوعة الصحية](http://static.shibang-china.com/all-800x300/65.jpg)</a>
+
+## هيدروكودون و أسيتامينوفين الموسوعة الصحية
+18 أيار (مايو) 2013.الأَسيتامينوفين Acetaminphen هو المسكِّنات analgesics ومُضادَّات الحمى antipyretics؛ وأمَّا ثُنائِيُّ هيدرو الكُودِيين Dihydrocodeine فهو دواءٌ مٌخدِّر ومسكِّن ومُضادٌّ للسُّعال.• تختلفُ.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+## اتصل بنا:
+
+**WhatsApp:**  [+8613621919955](https://whatsapp.shibangsoft.com/WhatsApp.php)
+
+**موقع (كسارة):** [https://ar-crusher.shibang-china.com/](https://ar-crusher.shibang-china.com/?from=github-ar)
+
+**موقع (مطحنة):** [https://ar-mill.shibang-china.com/](https://ar-mill.shibang-china.com/?from=github-ar)
+
+**نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?from=github-ar)
+
+## روابط ذات علاقة:
+
+*  [بيع كسارات الرمال المصنعة للبيع](https://github.com/sbmboy/ar/blob/main/31/%D8%A8%D9%8A%D8%B9%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A7%D8%AA%20%D8%A7%D9%84%D8%B1%D9%85%D8%A7%D9%84%20%D8%A7%D9%84%D9%85%D8%B5%D9%86%D8%B9%D8%A9%20%D9%84%D9%84%D8%A8%D9%8A%D8%B9.md) 
+
+*  [knelson الفك محطم أستراليا](https://github.com/sbmboy/ar/blob/main/23/knelson%20%D8%A7%D9%84%D9%81%D9%83%20%D9%85%D8%AD%D8%B7%D9%85%20%D8%A3%D8%B3%D8%AA%D8%B1%D8%A7%D9%84%D9%8A%D8%A7.md) 
+
+*  [تأثير طاحونة قديمة على مبيعات](https://github.com/sbmboy/ar/blob/main/47/%D8%AA%D8%A3%D8%AB%D9%8A%D8%B1%20%D8%B7%D8%A7%D8%AD%D9%88%D9%86%D8%A9%20%D9%82%D8%AF%D9%8A%D9%85%D8%A9%20%D8%B9%D9%84%D9%89%20%D9%85%D8%A8%D9%8A%D8%B9%D8%A7%D8%AA.md) 
+
+*  [ماشین لباسشویی شن و ماسه سنگ شکن اوج](https://github.com/sbmboy/ar/blob/main/1/%D9%85%D8%A7%D8%B4%DB%8C%D9%86%20%D9%84%D8%A8%D8%A7%D8%B3%D8%B4%D9%88%DB%8C%DB%8C%20%D8%B4%D9%86%20%D9%88%20%D9%85%D8%A7%D8%B3%D9%87%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%A7%D9%88%D8%AC.md) 
+
+*  [آلية لمنجم ذهب](https://github.com/sbmboy/ar/blob/main/68/%D8%A2%D9%84%D9%8A%D8%A9%20%D9%84%D9%85%D9%86%D8%AC%D9%85%20%D8%B0%D9%87%D8%A8.md) 
+
+*  [فلينتستون حجر المحجر قصاصة فنية](https://github.com/sbmboy/ar/blob/main/52/%D9%81%D9%84%D9%8A%D9%86%D8%AA%D8%B3%D8%AA%D9%88%D9%86%20%D8%AD%D8%AC%D8%B1%20%D8%A7%D9%84%D9%85%D8%AD%D8%AC%D8%B1%20%D9%82%D8%B5%D8%A7%D8%B5%D8%A9%20%D9%81%D9%86%D9%8A%D8%A9.md) 
+
+*  [الباردة فائف المدرفلة على طواحين الشركة ال](https://github.com/sbmboy/ar/blob/main/26/%D8%A7%D9%84%D8%A8%D8%A7%D8%B1%D8%AF%D8%A9%20%D9%81%D8%A7%D8%A6%D9%81%20%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D9%81%D9%84%D8%A9%20%D8%B9%D9%84%D9%89%20%D8%B7%D9%88%D8%A7%D8%AD%D9%8A%D9%86%20%D8%A7%D9%84%D8%B4%D8%B1%D9%83%D8%A9%20%D8%A7%D9%84.md) 

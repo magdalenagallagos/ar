@@ -1,0 +1,66 @@
+# defiance pulverizer سري لانكا
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![Online Visa Application](http://static.shibang-china.com/all-800x300/959.jpg)</a>
+
+## Online Visa Application
+على أساس المعاملة بالمثل، ويستثنى من مواطني جمهورية سنغافورة وجمهورية جزر المالديف من شرط الحصول على ETA لزيارة سري لانكا.(اقرأ المزيد).سلطة إصدار ETA تقع.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![سريلانكا.طوارئ واشتباكات وهجمات على مسلمين الجزيرة.نت](http://static.shibang-china.com/all-800x300/1289.jpg)</a>
+
+## سريلانكا.طوارئ واشتباكات وهجمات على مسلمين الجزيرة.نت
+7 آذار (مارس) 2018.قالت شرطة سريلانكا إن بوذيين هاجموا مساجد وممتلكات مسلمين أثناء الليل رغم فرض حالة الطوارئ لاستعادة الهدوء بالبلاد، وفرقت الشرطة بالقوة مثيري.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![سريلانكا الجزيرة.نت](http://static.shibang-china.com/all-800x300/1349.jpg)</a>
+
+## سريلانكا الجزيرة.نت
+12 كانون الثاني (يناير) 2012.الدولة الاسم: جمهورية سريلانكا الديمقراطية الاشتراكية الاسم المختصر: سريلانكا العاصمة: كولومبو اللغة: السنهالية (رسمية)، تاميل (لغة وطنية)،.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![الدعارة في سريلانكا ويكيبيديا، الموسوعة الحرة](http://static.shibang-china.com/all-800x300/1200.jpg)</a>
+
+## الدعارة في سريلانكا ويكيبيديا، الموسوعة الحرة
+الدعارة في سريلانكا غير قانونية ويحظر القانون ما يرتبط بها من نشاطات مثل الالتماس والقوادة ودور الدعارة.كما يعد الاتجار بالبشر بغرض الدعارة ولا سيما القاصرين منهم.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![منتخب سريلانكا لكرة القدم ويكيبيديا، الموسوعة الحرة](http://static.shibang-china.com/all-800x300/753.jpg)</a>
+
+## منتخب سريلانكا لكرة القدم ويكيبيديا، الموسوعة الحرة
+منتخب سريلانكا لكرة القدم هو المنتخب الوطني لجمهورية سريلانكا ويمثلها في لعبة كرة القدم.بينما تعتبر لعبة الكريكت الرياضة الأكثر شعبية في سريلانكا، تبقى.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+## اتصل بنا:
+
+**WhatsApp:**  [+8613621919955](https://whatsapp.shibangsoft.com/WhatsApp.php)
+
+**موقع (كسارة):** [https://ar-crusher.shibang-china.com/](https://ar-crusher.shibang-china.com/?from=github-ar)
+
+**موقع (مطحنة):** [https://ar-mill.shibang-china.com/](https://ar-mill.shibang-china.com/?from=github-ar)
+
+**نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?from=github-ar)
+
+## روابط ذات علاقة:
+
+*  [الجدول الذهب موجة شاكر أستراليا](https://github.com/sbmboy/ar/blob/main/46/%D8%A7%D9%84%D8%AC%D8%AF%D9%88%D9%84%20%D8%A7%D9%84%D8%B0%D9%87%D8%A8%20%D9%85%D9%88%D8%AC%D8%A9%20%D8%B4%D8%A7%D9%83%D8%B1%20%D8%A3%D8%B3%D8%AA%D8%B1%D8%A7%D9%84%D9%8A%D8%A7.md) 
+
+*  [رسومات المطرقة محطم](https://github.com/sbmboy/ar/blob/main/26/%D8%B1%D8%B3%D9%88%D9%85%D8%A7%D8%AA%20%D8%A7%D9%84%D9%85%D8%B7%D8%B1%D9%82%D8%A9%20%D9%85%D8%AD%D8%B7%D9%85.md) 
+
+*  [ايطاليا سحق المحمول](https://github.com/sbmboy/ar/blob/main/95/%D8%A7%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7%20%D8%B3%D8%AD%D9%82%20%D8%A7%D9%84%D9%85%D8%AD%D9%85%D9%88%D9%84.md) 
+
+*  [كبريتيد الفك مخروط محطم حالة العملاء تجارب حل](https://github.com/sbmboy/ar/blob/main/84/%D9%83%D8%A8%D8%B1%D9%8A%D8%AA%D9%8A%D8%AF%20%D8%A7%D9%84%D9%81%D9%83%20%D9%85%D8%AE%D8%B1%D9%88%D8%B7%20%D9%85%D8%AD%D8%B7%D9%85%20%D8%AD%D8%A7%D9%84%D8%A9%20%D8%A7%D9%84%D8%B9%D9%85%D9%84%D8%A7%D8%A1%C2%A0%D8%AA%D8%AC%D8%A7%D8%B1%D8%A8%20%D8%AD%D9%84.md) 
+
+*  [النباتات الحفر والتفجير](https://github.com/sbmboy/ar/blob/main/13/%D8%A7%D9%84%D9%86%D8%A8%D8%A7%D8%AA%D8%A7%D8%AA%20%D8%A7%D9%84%D8%AD%D9%81%D8%B1%20%D9%88%D8%A7%D9%84%D8%AA%D9%81%D8%AC%D9%8A%D8%B1.md) 
+
+*  [معدات التعدين وظيفة مدير مبيعات في البرازيل](https://github.com/sbmboy/ar/blob/main/67/%D9%85%D8%B9%D8%AF%D8%A7%D8%AA%20%D8%A7%D9%84%D8%AA%D8%B9%D8%AF%D9%8A%D9%86%20%D9%88%D8%B8%D9%8A%D9%81%D8%A9%20%D9%85%D8%AF%D9%8A%D8%B1%20%D9%85%D8%A8%D9%8A%D8%B9%D8%A7%D8%AA%20%D9%81%D9%8A%20%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84.md) 
+
+*  [التفاح طاحونة النجارة الخطط](https://github.com/sbmboy/ar/blob/main/16/%D8%A7%D9%84%D8%AA%D9%81%D8%A7%D8%AD%20%D8%B7%D8%A7%D8%AD%D9%88%D9%86%D8%A9%20%D8%A7%D9%84%D9%86%D8%AC%D8%A7%D8%B1%D8%A9%20%D8%A7%D9%84%D8%AE%D8%B7%D8%B7.md) 

@@ -1,0 +1,58 @@
+# حزب العمال allindo kaltim منجم للفحم
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![استخراج الفحم ويكيبيديا، الموسوعة الحرة](http://static.shibang-china.com/all-800x300/327.jpg)</a>
+
+## استخراج الفحم ويكيبيديا، الموسوعة الحرة
+مخاطر التعدين السطحى هي أساسا فشل جدار المنجم وتصادم المركبات وتشمل مخاطر التعدين تحت الأرض الاختناق، والتسمم بالغاز، وانهيار السقف،.على الرغم أنه في البلدان الأقل نموا وبعض البلدان النامية لا يزال العديد من عمال المناجم يموتون سنويا إما عن طريق الحوادث المباشرة في مناجم الفحم أو من خلال.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![ترامب &quot; ندعم تركيا في حربها ضد داعش و حزب العمال الكردستاني&quot; BBC.](http://static.shibang-china.com/all-800x300/34.jpg)</a>
+
+## ترامب &quot; ندعم تركيا في حربها ضد داعش و حزب العمال الكردستاني&quot; BBC.
+16 أيار (مايو) 2017.قال الرئيس الأمريكى دونالد ترامب، إن بلاده تدعم تركيا فى حربها ضد &quot;التنظيمات الإرهابية مثل تنظيم الدولة وحزب العمال الكردستاني&quot;.وأضاف ترامب في مؤتمر صحفي جمعه بنظيره التركي رجب طيب اردوغان&quot; إن الولايات المتحدة تواجه مع تركيا نفس الخطر والهجمات الإرهابية التي تتعرض لها تركيا، لذا ندعم حربها ضد الإرهاب.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![تركيا تعتقل 10 أشخاص من حزب العمال الكردستاني العربية.نت.](http://static.shibang-china.com/all-800x300/794.jpg)</a>
+
+## تركيا تعتقل 10 أشخاص من حزب العمال الكردستاني العربية.نت.
+27 تشرين الثاني (نوفمبر) 2017.قالت وكالة الأناضول التركية للأنباء إن شرطة مكافحة الإرهاب اعتقلت عشرة أشخاص بينهم الأكاديمي فكرت باسكايا في وقت مبكر اليوم الاثنين في عملية تستهدف.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![بغداد تقول الأكراد جلبوا مقاتلين من حزب العمال الكردستاني إلى كركوك.](http://static.shibang-china.com/all-800x300/1129.jpg)</a>
+
+## بغداد تقول الأكراد جلبوا مقاتلين من حزب العمال الكردستاني إلى كركوك.
+15 تشرين الأول (أكتوبر) 2017.بغداد (رويترز) اتهمت الحكومة العراقية السلطات الكردية يوم الأحد بجلب مقاتلين من حزب العمال الكردستاني الانفصالي في تركيا إلى مدينة كركوك المتنازع عليها وقالت إنها تعتبر ذلك &quot;إعلان حرب&quot;.ونفى فاهال علي المتحدث باسم رئيس إقليم كردستان العراق مسعود برزاني هذا الاتهام وقال لرويترز &quot;هذا غير صحيح.حزب العمال.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+## اتصل بنا:
+
+**WhatsApp:**  [+8613621919955](https://whatsapp.shibangsoft.com/WhatsApp.php)
+
+**موقع (كسارة):** [https://ar-crusher.shibang-china.com/](https://ar-crusher.shibang-china.com/?from=github-ar)
+
+**موقع (مطحنة):** [https://ar-mill.shibang-china.com/](https://ar-mill.shibang-china.com/?from=github-ar)
+
+**نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?from=github-ar)
+
+## روابط ذات علاقة:
+
+*  [رسم تخطيطي لكسارة التكسير](https://github.com/sbmboy/ar/blob/main/74/%D8%B1%D8%B3%D9%85%20%D8%AA%D8%AE%D8%B7%D9%8A%D8%B7%D9%8A%20%D9%84%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D8%A7%D9%84%D8%AA%D9%83%D8%B3%D9%8A%D8%B1.md) 
+
+*  [الدخان الكلي ملموسة](https://github.com/sbmboy/ar/blob/main/66/%D8%A7%D9%84%D8%AF%D8%AE%D8%A7%D9%86%20%D8%A7%D9%84%D9%83%D9%84%D9%8A%20%D9%85%D9%84%D9%85%D9%88%D8%B3%D8%A9.md) 
+
+*  [الرخيصة كسارات الصخور المحمولة](https://github.com/sbmboy/ar/blob/main/27/%D8%A7%D9%84%D8%B1%D8%AE%D9%8A%D8%B5%D8%A9%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A7%D8%AA%20%D8%A7%D9%84%D8%B5%D8%AE%D9%88%D8%B1%20%D8%A7%D9%84%D9%85%D8%AD%D9%85%D9%88%D9%84%D8%A9.md) 
+
+*  [مبيعات معدات الغسل واجب heay insingapore](https://github.com/sbmboy/ar/blob/main/65/%D9%85%D8%A8%D9%8A%D8%B9%D8%A7%D8%AA%20%D9%85%D8%B9%D8%AF%D8%A7%D8%AA%20%D8%A7%D9%84%D8%BA%D8%B3%D9%84%20%D9%88%D8%A7%D8%AC%D8%A8%20heay%20insingapore.md) 
+
+*  [كسارة الفك الدقيقة](https://github.com/sbmboy/ar/blob/main/48/%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D8%A7%D9%84%D9%81%D9%83%20%D8%A7%D9%84%D8%AF%D9%82%D9%8A%D9%82%D8%A9.md) 
+
+*  [الألغام في جنوب لجنوب أفريقيا](https://github.com/sbmboy/ar/blob/main/24/%D8%A7%D9%84%D8%A3%D9%84%D8%BA%D8%A7%D9%85%20%D9%81%D9%8A%20%D8%AC%D9%86%D9%88%D8%A8%20%D9%84%D8%AC%D9%86%D9%88%D8%A8%20%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7.md) 
+
+*  [سعر للكسارة فكية](https://github.com/sbmboy/ar/blob/main/14/%D8%B3%D8%B9%D8%B1%20%D9%84%D9%84%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D9%81%D9%83%D9%8A%D8%A9.md) 

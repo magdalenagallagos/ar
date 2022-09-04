@@ -1,0 +1,66 @@
+# قطع الغيار amirtha طاحونة الرطب في تاميل نادو districtwise
+<a href="https://ar-mill.shibang-china.com/?from=github-ar" target="_blank">![اوقات الصلاة مادوراي,Madurai tamil nadu](http://static.shibang-china.com/all-800x300/720.jpg)</a>
+
+## اوقات الصلاة مادوراي,Madurai tamil nadu
+اوقات الصلاة مادوراي,Madurai tamil nadu,مع امكانية التنبية لمواقيت الصلاة بالصوت وبمختلف اصوات الأذان,فكل من صلاة الفجر سيتم رفعها بالأذان الخاص به وكل من صلاة الظهر والعصر والمغرب والعشاء لها أذانها الخاص,
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-mill.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-mill.shibang-china.com/?from=github-ar" target="_blank">![الأمطار الغزيرة تقتل 12 شخصًا في الهند التحرير الإخبـاري](http://static.shibang-china.com/all-800x300/175.jpg)</a>
+
+## الأمطار الغزيرة تقتل 12 شخصًا في الهند التحرير الإخبـاري
+4 تشرين الثاني (نوفمبر) 2017.لقى نحو 12 شخصًا مصرعهم فى مدينة تشيناي جنوب الهند، وذلك بعد هطول الأمطار بغزارة لمدة أكثر من أسبوع، وفقا لما ذكرته صحيفة Times of India.ووفقًا لتلفزيون &quot;&quot;NDTV، اضطر أكثر من عشرة آلاف شخص للاختباء من الأمطار في معسكرات منظمة بشكل خاص فى ولاية تاميل نادو.وقد أدت الأمطار الغزيرة وغمر المياه للطرق والشوارع.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-mill.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-mill.shibang-china.com/?from=github-ar" target="_blank">![تاميل نادو ويكيبيديا، الموسوعة الحرة](http://static.shibang-china.com/all-800x300/1221.jpg)</a>
+
+## تاميل نادو ويكيبيديا، الموسوعة الحرة
+تامل نادو (بالتاملية: தமிழ்நாடு) هي إحدى ولايات الهند البالغ عددها 28 ولاية، وعاصمة هذه الولاية هي مدينة تشيناي.وتقع ولاية تامل نادو في أقصى جنوب شبه القارة الهندية، ويحدّها إقليم بونديتشيري الإتحادي وكذا ولايات كيرلا وكارناتاكا وأندرا برديش.تُحيط بالولاية جغرافياً جبال الغات الشرقية شمالاً، وجبال نلغيري وجبال أنايمالاي.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-mill.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-mill.shibang-china.com/?from=github-ar" target="_blank">![تاميل نادو المعرفة](http://static.shibang-china.com/all-800x300/1426.jpg)</a>
+
+## تاميل نادو المعرفة
+تاميل نادو ولاية تقع جنوب شرقي الهند وتبلغ مساحتها 130,058 كم² وعدد سكانها 55,638,318 نسمة، معظمهم من الهندوس وأقليات من المسلمين والنَّصارى.ويعتمد 75% من السكان على زراعة القطن والفول السوداني والأرز وقصب السكر وصناعة المعدات الهندسية والسيارات والنسيج والحديد والصلب.وعاصمتها چـِنـاي (مدراس، سابقاً).ولاية تاميل نادو.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-mill.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-mill.shibang-china.com/?from=github-ar" target="_blank">![تشيناي مادراس خريطة خرائط تشيناي مادراس (تاميل نادو الهند)](http://static.shibang-china.com/all-800x300/270.jpg)</a>
+
+## تشيناي مادراس خريطة خرائط تشيناي مادراس (تاميل نادو الهند)
+تشيناي مادراس الخرائط.تشيناي مادراس الخريطة.خريطة تشيناي مادراس تاميل نادو في الهند.خرائط تشيناي مادراس للتحميل.وجميع الخرائط تشيناي مادراس للطباعة.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-mill.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+## اتصل بنا:
+
+**WhatsApp:**  [+8613621919955](https://whatsapp.shibangsoft.com/WhatsApp.php)
+
+**موقع (كسارة):** [https://ar-crusher.shibang-china.com/](https://ar-crusher.shibang-china.com/?from=github-ar)
+
+**موقع (مطحنة):** [https://ar-mill.shibang-china.com/](https://ar-mill.shibang-china.com/?from=github-ar)
+
+**نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?from=github-ar)
+
+## روابط ذات علاقة:
+
+*  [محطم خام مكين](https://github.com/sbmboy/ar/blob/main/84/%D9%85%D8%AD%D8%B7%D9%85%20%D8%AE%D8%A7%D9%85%20%D9%85%D9%83%D9%8A%D9%86.md) 
+
+*  [شغل كسارات فى الامارات](https://github.com/sbmboy/ar/blob/main/4/%D8%B4%D8%BA%D9%84%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A7%D8%AA%20%D9%81%D9%89%20%D8%A7%D9%84%D8%A7%D9%85%D8%A7%D8%B1%D8%A7%D8%AA.md) 
+
+*  [الحجر معدات الشركة تركيا](https://github.com/sbmboy/ar/blob/main/24/%D8%A7%D9%84%D8%AD%D8%AC%D8%B1%20%D9%85%D8%B9%D8%AF%D8%A7%D8%AA%20%D8%A7%D9%84%D8%B4%D8%B1%D9%83%D8%A9%20%D8%AA%D8%B1%D9%83%D9%8A%D8%A7.md) 
+
+*  [طحن رقائق الجرافيت بلورية](https://github.com/sbmboy/ar/blob/main/11/%D8%B7%D8%AD%D9%86%20%D8%B1%D9%82%D8%A7%D8%A6%D9%82%20%D8%A7%D9%84%D8%AC%D8%B1%D8%A7%D9%81%D9%8A%D8%AA%20%D8%A8%D9%84%D9%88%D8%B1%D9%8A%D8%A9.md) 
+
+*  [ماكينة لف بكرات الخياطة الصغيرة](https://github.com/sbmboy/ar/blob/main/11/%D9%85%D8%A7%D9%83%D9%8A%D9%86%D8%A9%20%D9%84%D9%81%20%D8%A8%D9%83%D8%B1%D8%A7%D8%AA%20%D8%A7%D9%84%D8%AE%D9%8A%D8%A7%D8%B7%D8%A9%20%D8%A7%D9%84%D8%B5%D8%BA%D9%8A%D8%B1%D8%A9.md) 
+
+*  [الكرة مطحنة العمل المبدأ باور بوينت](https://github.com/sbmboy/ar/blob/main/23/%D8%A7%D9%84%D9%83%D8%B1%D8%A9%20%D9%85%D8%B7%D8%AD%D9%86%D8%A9%20%D8%A7%D9%84%D8%B9%D9%85%D9%84%20%D8%A7%D9%84%D9%85%D8%A8%D8%AF%D8%A3%20%D8%A8%D8%A7%D9%88%D8%B1%20%D8%A8%D9%88%D9%8A%D9%86%D8%AA.md) 
+
+*  [طاحونة الأسمنت الجديدة في العالم](https://github.com/sbmboy/ar/blob/main/29/%D8%B7%D8%A7%D8%AD%D9%88%D9%86%D8%A9%20%D8%A7%D9%84%D8%A3%D8%B3%D9%85%D9%86%D8%AA%20%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9%20%D9%81%D9%8A%20%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85.md) 

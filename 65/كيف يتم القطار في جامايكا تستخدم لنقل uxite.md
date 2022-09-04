@@ -1,0 +1,50 @@
+# كيف يتم القطار في جامايكا تستخدم لنقل uxite
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![عمليات النقل بالقطار ويكيبيديا، الموسوعة الحرة](http://static.shibang-china.com/all-800x300/342.jpg)</a>
+
+## عمليات النقل بالقطار ويكيبيديا، الموسوعة الحرة
+عمليات النقل بالقطار (بالإنجليزية:Rail transport operations ) النقل بالسكة الحديد تعتمد على عنصرين رئيسيين: الأجهزة المتحركة (مثل القاطرات، وعربات الركاب، وعربات البضائع ، وغيرها) و البنية التحتية (وهي السكة الثابتة ، والفضبان ، والمحطات ، ومخازن البضائع والمنقولات ، والقناطر ، والأنفاق، وغيرها).
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![كيف أصبحت القطارات الحديثة وسيلة نقل أكثر فخامة؟ BBC Arabic](http://static.shibang-china.com/all-800x300/1479.jpg)</a>
+
+## كيف أصبحت القطارات الحديثة وسيلة نقل أكثر فخامة؟ BBC Arabic
+5 كانون الثاني (يناير) 2018.هل باتت القطارات وسيلة النقل المفضلة؟ يستعرض دومينيك ليوتينز التصميمات الجديدة والجريئة للقطارات ومحطات السكك الحديدية التي تبدو وكأنها قادمة من المستقبل.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![الخدمات في المحطة وفي القطار Oncf](http://static.shibang-china.com/all-800x300/969.jpg)</a>
+
+## الخدمات في المحطة وفي القطار Oncf
+المنتوجات و الخدمات &gt; الخدمات في المحطة وفي القطار.محطة القطار.تتوفر الشبكة الحديدية على حوالي 100 محطةة و تصنف إلى &quot;محطات قطار صغيرة أو متوسطة أو كبيرة&quot; حسب أهمية عدد المسافرين الذين يعبرون منها كل يوم.حسب عدد الأشخاص يمكن توفير هذه الخدمة في مقطورة واحدة أو عدة مقطورات يتم حجزها أو على متن عربة مؤجرة مخصصة لكم كليا.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+## اتصل بنا:
+
+**WhatsApp:**  [+8613621919955](https://whatsapp.shibangsoft.com/WhatsApp.php)
+
+**موقع (كسارة):** [https://ar-crusher.shibang-china.com/](https://ar-crusher.shibang-china.com/?from=github-ar)
+
+**موقع (مطحنة):** [https://ar-mill.shibang-china.com/](https://ar-mill.shibang-china.com/?from=github-ar)
+
+**نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?from=github-ar)
+
+## روابط ذات علاقة:
+
+*  [لدفع الكرة المطاحن الحديد](https://github.com/sbmboy/ar/blob/main/81/%D9%84%D8%AF%D9%81%D8%B9%20%D8%A7%D9%84%D9%83%D8%B1%D8%A9%20%D8%A7%D9%84%D9%85%D8%B7%D8%A7%D8%AD%D9%86%C2%A0%D8%A7%D9%84%D8%AD%D8%AF%D9%8A%D8%AF.md) 
+
+*  [الذهب معدات الصخور الألغام](https://github.com/sbmboy/ar/blob/main/52/%D8%A7%D9%84%D8%B0%D9%87%D8%A8%20%D9%85%D8%B9%D8%AF%D8%A7%D8%AA%20%D8%A7%D9%84%D8%B5%D8%AE%D9%88%D8%B1%20%D8%A7%D9%84%D8%A3%D9%84%D8%BA%D8%A7%D9%85.md) 
+
+*  [تعدين وضوح الشمس ما الإجراءات للقيام](https://github.com/sbmboy/ar/blob/main/65/%D8%AA%D8%B9%D8%AF%D9%8A%D9%86%20%D9%88%D8%B6%D9%88%D8%AD%20%D8%A7%D9%84%D8%B4%D9%85%D8%B3%20%D9%85%D8%A7%20%D8%A7%D9%84%D8%A5%D8%AC%D8%B1%D8%A7%D8%A1%D8%A7%D8%AA%20%D9%84%D9%84%D9%82%D9%8A%D8%A7%D9%85.md) 
+
+*  [غارغانتي السعر و كامباني](https://github.com/sbmboy/ar/blob/main/31/%D8%BA%D8%A7%D8%B1%D8%BA%D8%A7%D9%86%D8%AA%D9%8A%20%D8%A7%D9%84%D8%B3%D8%B9%D8%B1%20%D9%88%20%D9%83%D8%A7%D9%85%D8%A8%D8%A7%D9%86%D9%8A.md) 
+
+*  [الات صناعة الطوب خفيف الوزن](https://github.com/sbmboy/ar/blob/main/19/%D8%A7%D9%84%D8%A7%D8%AA%20%D8%B5%D9%86%D8%A7%D8%B9%D8%A9%20%D8%A7%D9%84%D8%B7%D9%88%D8%A8%20%D8%AE%D9%81%D9%8A%D9%81%20%D8%A7%D9%84%D9%88%D8%B2%D9%86.md) 
+
+*  [رسم هندسى لدرافيل طحن](https://github.com/sbmboy/ar/blob/main/41/%D8%B1%D8%B3%D9%85%20%D9%87%D9%86%D8%AF%D8%B3%D9%89%20%D9%84%D8%AF%D8%B1%D8%A7%D9%81%D9%8A%D9%84%20%D8%B7%D8%AD%D9%86.md) 
+
+*  [يكستي mobilestone محطم المملكة المتحدة](https://github.com/sbmboy/ar/blob/main/67/%D9%8A%D9%83%D8%B3%D8%AA%D9%8A%20mobilestone%20%D9%85%D8%AD%D8%B7%D9%85%20%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9%20%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%A9.md) 

@@ -1,0 +1,50 @@
+# خط محطة cresher تتطلب كوم
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![امُلخص مختصر لشبكة خطوط التُرَام في مدينة لشبونة Lisbonne](http://static.shibang-china.com/all-800x300/1209.jpg)</a>
+
+## امُلخص مختصر لشبكة خطوط التُرَام في مدينة لشبونة Lisbonne
+تمتلك مدينة لشبونة شبكة واسعة من خطوط التُرَام التي تقوم على خدمة العديد من مناطق العاصمة الغير مُغطاة بخطوط الحافلات او شبكة مترو الانفاق، يوجد 5 خطوط تُرَام.كل الخدمات وسيوفر ايضاً قائمة بكل المحطات المفيدة للسائحين، للحصول على دليل يشرح كيفية استخدام خطوط التُرَام مدفوعة الأجرة، من فضلك اضغط هنا، يتم إعطاء كل خط من خطوط.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![ملف معلوماتى.تعرف على محطات خط مترو العباسية المتوقفة عن العمل.](http://static.shibang-china.com/all-800x300/19.jpg)</a>
+
+## ملف معلوماتى.تعرف على محطات خط مترو العباسية المتوقفة عن العمل.
+27 نيسان (إبريل) 2015.ننشر تعريفًا بالخط الثالث للمترو ومحطاته، والمناطق المتضررة بعد توقف حركة القطارات العاملة على هذا الخط بعد تصادم قطار العباسية.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![مصادر: إنشاء محطات مترو الخط الثالث بشارع السودان يستغرق 3 سنوات.](http://static.shibang-china.com/all-800x300/1464.jpg)</a>
+
+## مصادر: إنشاء محطات مترو الخط الثالث بشارع السودان يستغرق 3 سنوات.
+14 كانون الأول (ديسمبر) 2017.استكمال إنشاء محطات مترو أنفاق الخط الثالث بشارع السودان مما يستلزم إجراء الأعمال بالشارع لمدة 3 سنوات، وإغلاق جزئى بالطريق فى الاتجاهين.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+## اتصل بنا:
+
+**WhatsApp:**  [+8613621919955](https://whatsapp.shibangsoft.com/WhatsApp.php)
+
+**موقع (كسارة):** [https://ar-crusher.shibang-china.com/](https://ar-crusher.shibang-china.com/?from=github-ar)
+
+**موقع (مطحنة):** [https://ar-mill.shibang-china.com/](https://ar-mill.shibang-china.com/?from=github-ar)
+
+**نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?from=github-ar)
+
+## روابط ذات علاقة:
+
+*  [معقدة سعر محطم الصينية](https://github.com/sbmboy/ar/blob/main/38/%D9%85%D8%B9%D9%82%D8%AF%D8%A9%20%D8%B3%D8%B9%D8%B1%20%D9%85%D8%AD%D8%B7%D9%85%20%D8%A7%D9%84%D8%B5%D9%8A%D9%86%D9%8A%D8%A9.md) 
+
+*  [على نطاق صغير آلة طحن الذهب](https://github.com/sbmboy/ar/blob/main/68/%D8%B9%D9%84%D9%89%20%D9%86%D8%B7%D8%A7%D9%82%20%D8%B5%D8%BA%D9%8A%D8%B1%20%D8%A2%D9%84%D8%A9%20%D8%B7%D8%AD%D9%86%20%D8%A7%D9%84%D8%B0%D9%87%D8%A8.md) 
+
+*  [محجر معدني أزرق للبيع في تاميلنادو](https://github.com/sbmboy/ar/blob/main/13/%D9%85%D8%AD%D8%AC%D8%B1%20%D9%85%D8%B9%D8%AF%D9%86%D9%8A%20%D8%A3%D8%B2%D8%B1%D9%82%20%D9%84%D9%84%D8%A8%D9%8A%D8%B9%20%D9%81%D9%8A%20%D8%AA%D8%A7%D9%85%D9%8A%D9%84%D9%86%D8%A7%D8%AF%D9%88.md) 
+
+*  [صلابة المواد هش](https://github.com/sbmboy/ar/blob/main/64/%D8%B5%D9%84%D8%A7%D8%A8%D8%A9%20%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%AF%20%D9%87%D8%B4.md) 
+
+*  [ما هي الفائدة من النفايات الصخرية](https://github.com/sbmboy/ar/blob/main/65/%D9%85%D8%A7%20%D9%87%D9%8A%20%D8%A7%D9%84%D9%81%D8%A7%D8%A6%D8%AF%D8%A9%20%D9%85%D9%86%20%D8%A7%D9%84%D9%86%D9%81%D8%A7%D9%8A%D8%A7%D8%AA%20%D8%A7%D9%84%D8%B5%D8%AE%D8%B1%D9%8A%D8%A9.md) 
+
+*  [خشنة الوقوف المتداول مطحنة](https://github.com/sbmboy/ar/blob/main/72/%D8%AE%D8%B4%D9%86%D8%A9%20%D8%A7%D9%84%D9%88%D9%82%D9%88%D9%81%20%D8%A7%D9%84%D9%85%D8%AA%D8%AF%D8%A7%D9%88%D9%84%20%D9%85%D8%B7%D8%AD%D9%86%D8%A9.md) 
+
+*  [خشک کردن فرایند استخراج قلع در معدن](https://github.com/sbmboy/ar/blob/main/36/%D8%AE%D8%B4%DA%A9%20%DA%A9%D8%B1%D8%AF%D9%86%20%D9%81%D8%B1%D8%A7%DB%8C%D9%86%D8%AF%20%D8%A7%D8%B3%D8%AA%D8%AE%D8%B1%D8%A7%D8%AC%20%D9%82%D9%84%D8%B9%20%D8%AF%D8%B1%20%D9%85%D8%B9%D8%AF%D9%86.md) 
