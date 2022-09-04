@@ -1,0 +1,66 @@
+# تحت الأرض indiastonecrusher البوتاس
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![&quot;البوتاس العربية&quot; توقع اتفاقية لإعادة بناء سدين في البحر الميت](http://static.shibang-china.com/all-800x300/990.jpg)</a>
+
+## &quot;البوتاس العربية&quot; توقع اتفاقية لإعادة بناء سدين في البحر الميت
+1 تشرين الثاني (نوفمبر) 2017.وقعت شركتا البوتاس العربية وهيدروكونستركتيا إس.إيه الرومانية، اتفاقية تعاون تقوم بموجبها الأخيرة، بالتعاون مع مقاول أردني، بإعادة بناء اثنين من السدود في البحر الميت، بهدف.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![شركة البوتاس العربية](http://static.shibang-china.com/all-800x300/750.jpg)</a>
+
+## شركة البوتاس العربية
+إعرف أكثر عن الحياة والعمل في شركة البوتاس العربية.تصفح الشواغر الخاصة بك وتقدم لها أو أرسلها للأشخاص المناسبين.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![Arab Potash Company](http://static.shibang-china.com/all-800x300/1186.jpg)</a>
+
+## Arab Potash Company
+Esteemed shareholders may kindly be present at the fixed time and venue or authorize any of the shareholders at the company to represent your goodself at this meeting or any other meeting it may be deferred to by filling in the proxy attached to the invitation and submitting the same at the company&#39;s offices located in.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![البوتاس العربية توضح توجه البوتاس الكندية لبيع حصتها في الشركة.](http://static.shibang-china.com/all-800x300/461.jpg)</a>
+
+## البوتاس العربية توضح توجه البوتاس الكندية لبيع حصتها في الشركة.
+19 تشرين الأول (أكتوبر) 2017.قال رئيس مجلس ادارة شركة البوتاس العربية جمال الصرايرة ان الشركة الام للشريك الاستراتيجي في شركة البوتاس العربية &quot;بي سي اس جوردان&quot; وهي شركة بوتاشكورب، اعلنت اخيرا عن خطتها للاندماج مع شركة اجريوم وهي شركة كندية اخرى متخصصة في مجال الاسمدة.واضاف في تصريح لـ (بترا) انه نتيجة لعملية الاندماج يتوجب.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![موقع خبرني : البوتاس توقع اتفاقية لإعادة تأهيل السدود](http://static.shibang-china.com/all-800x300/1422.jpg)</a>
+
+## موقع خبرني : البوتاس توقع اتفاقية لإعادة تأهيل السدود
+31 تشرين الأول (أكتوبر) 2017.خبرني ضمن مشروع شركة البوتاس العربية لتوسيع إنتاج البوتاس بكمية 180 ألف طن سنويا وقعت الشركة على اتفاقية اليوم 31 تشرين أول 2017، مع شركة هيدروكونستركتيا إس إيه (Hidroconstructia SA) الرومانية، والتي سوف تتعاون في التنفيذ مع مقاول أردني، وذلك لإعادة بناء اثنين من السدود في البحر الميت.وتشكل.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+## اتصل بنا:
+
+**WhatsApp:**  [+8613621919955](https://whatsapp.shibangsoft.com/WhatsApp.php)
+
+**موقع (كسارة):** [https://ar-crusher.shibang-china.com/](https://ar-crusher.shibang-china.com/?from=github-ar)
+
+**موقع (مطحنة):** [https://ar-mill.shibang-china.com/](https://ar-mill.shibang-china.com/?from=github-ar)
+
+**نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?from=github-ar)
+
+## روابط ذات علاقة:
+
+*  [خطة الأعمال لطحن الحجارة في إثيوبيا](https://github.com/sbmboy/ar/blob/main/74/%D8%AE%D8%B7%D8%A9%20%D8%A7%D9%84%D8%A3%D8%B9%D9%85%D8%A7%D9%84%20%D9%84%D8%B7%D8%AD%D9%86%20%D8%A7%D9%84%D8%AD%D8%AC%D8%A7%D8%B1%D8%A9%20%D9%81%D9%8A%20%D8%A5%D8%AB%D9%8A%D9%88%D8%A8%D9%8A%D8%A7.md) 
+
+*  [برج طاحونة](https://github.com/sbmboy/ar/blob/main/90/%D8%A8%D8%B1%D8%AC%20%D8%B7%D8%A7%D8%AD%D9%88%D9%86%D8%A9.md) 
+
+*  [جون كين ترالي](https://github.com/sbmboy/ar/blob/main/28/%D8%AC%D9%88%D9%86%20%D9%83%D9%8A%D9%86%20%D8%AA%D8%B1%D8%A7%D9%84%D9%8A.md) 
+
+*  [مؤسسات تأجير جميع المعدات الثقيلة الخبر والدمام](https://github.com/sbmboy/ar/blob/main/19/%D9%85%D8%A4%D8%B3%D8%B3%D8%A7%D8%AA%20%D8%AA%D8%A3%D8%AC%D9%8A%D8%B1%20%D8%AC%D9%85%D9%8A%D8%B9%20%D8%A7%D9%84%D9%85%D8%B9%D8%AF%D8%A7%D8%AA%20%D8%A7%D9%84%D8%AB%D9%82%D9%8A%D9%84%D8%A9%20%D8%A7%D9%84%D8%AE%D8%A8%D8%B1%20%D9%88%D8%A7%D9%84%D8%AF%D9%85%D8%A7%D9%85.md) 
+
+*  [بناة محطة استخلاص خام السيليكا](https://github.com/sbmboy/ar/blob/main/99/%D8%A8%D9%86%D8%A7%D8%A9%20%D9%85%D8%AD%D8%B7%D8%A9%20%D8%A7%D8%B3%D8%AA%D8%AE%D9%84%D8%A7%D8%B5%20%D8%AE%D8%A7%D9%85%20%D8%A7%D9%84%D8%B3%D9%8A%D9%84%D9%8A%D9%83%D8%A7.md) 
+
+*  [الحديد الماكينات خام الشركة المصنعة](https://github.com/sbmboy/ar/blob/main/24/%D8%A7%D9%84%D8%AD%D8%AF%D9%8A%D8%AF%20%D8%A7%D9%84%D9%85%D8%A7%D9%83%D9%8A%D9%86%D8%A7%D8%AA%20%D8%AE%D8%A7%D9%85%20%D8%A7%D9%84%D8%B4%D8%B1%D9%83%D8%A9%20%D8%A7%D9%84%D9%85%D8%B5%D9%86%D8%B9%D8%A9.md) 
+
+*  [سحق الصغيرة صنع آلة الرمال](https://github.com/sbmboy/ar/blob/main/50/%D8%B3%D8%AD%D9%82%20%D8%A7%D9%84%D8%B5%D8%BA%D9%8A%D8%B1%D8%A9%20%D8%B5%D9%86%D8%B9%20%D8%A2%D9%84%D8%A9%20%D8%A7%D9%84%D8%B1%D9%85%D8%A7%D9%84.md) 

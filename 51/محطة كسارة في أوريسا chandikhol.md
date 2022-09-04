@@ -1,0 +1,50 @@
+# محطة كسارة في أوريسا chandikhol
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![لغة الأوريا ويكيبيديا، الموسوعة الحرة](http://static.shibang-china.com/all-800x300/88.jpg)</a>
+
+## لغة الأوريا ويكيبيديا، الموسوعة الحرة
+الأوريا (ଓଡ଼ିଆ oṛiā) وهجاؤها الرسمي أوديا، هي لغة هندية تنتمي إلى الهندية الآرية، وتنحدر من فروع عائلة اللغات الهندية الأوروبية.ويتم التحدث بها بشكل أساسي في ولايات أوريسا وفي أجزاء من بنغال الغربية وجهارخاند وتشاتيسغار وأندرا برديش.وتعد الأوريا إحدى اللغات الرسمية العديدة في الهند؛ وهي اللغة الرسمية لولاية أوريسا وثاني لغة رسمية.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![بوبانسوار ويكيبيديا، الموسوعة الحرة](http://static.shibang-china.com/all-800x300/100.jpg)</a>
+
+## بوبانسوار ويكيبيديا، الموسوعة الحرة
+معلومات))،هي عاصمة الولاية الهندية أوريسا، التي تنطق رسميًا أوديسا.ويرجع تاريخ المدينة لأكثر من 3000 سنة بدءًا من سلالة ماهاميجغا باهانا شيدي (حوالي القرن2 قبل الميلاد) التي كانت عاصمتها مدينة سيسوبالجريه () بالقرب من بوبانسوار في العصر الحالي.وقد عرفت مدينة بوبانسوار بأسماء مثل توشالي وكالينجا ناجاري وناجار كالينجا وإيكامرا.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![أوديشا ويكيبيديا، الموسوعة الحرة](http://static.shibang-china.com/all-800x300/461.jpg)</a>
+
+## أوديشا ويكيبيديا، الموسوعة الحرة
+أوديشا (أو أوديسا) وقد كانت تسمى قبل نوفمبر 2011 أوريسا ولاية تقع في الساحل الشمالي الشرقي للهند، ومساحتها 155,707 كم²، وعدد سكانها 31,512,070 نسمة، وعاصمتها بوبنسوار.وهي من أقل الولايات الهندية كثافة في السكان.وتعتمد في اقتصادها على الزراعة التقليدية كزراعة الأرز والدخن وصناعة الألومنيوم والأسمدة وصناعة النسيج وتعدين.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+## اتصل بنا:
+
+**WhatsApp:**  [+8613621919955](https://whatsapp.shibangsoft.com/WhatsApp.php)
+
+**موقع (كسارة):** [https://ar-crusher.shibang-china.com/](https://ar-crusher.shibang-china.com/?from=github-ar)
+
+**موقع (مطحنة):** [https://ar-mill.shibang-china.com/](https://ar-mill.shibang-china.com/?from=github-ar)
+
+**نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?from=github-ar)
+
+## روابط ذات علاقة:
+
+*  [فتح التعدين المصبوب في الهند](https://github.com/sbmboy/ar/blob/main/73/%D9%81%D8%AA%D8%AD%20%D8%A7%D9%84%D8%AA%D8%B9%D8%AF%D9%8A%D9%86%20%D8%A7%D9%84%D9%85%D8%B5%D8%A8%D9%88%D8%A8%20%D9%81%D9%8A%20%D8%A7%D9%84%D9%87%D9%86%D8%AF.md) 
+
+*  [كم طنا من الجرانيت يمكن محجر بيع يوميا في ني�](https://github.com/sbmboy/ar/blob/main/27/%D9%83%D9%85%20%D8%B7%D9%86%D8%A7%20%D9%85%D9%86%20%D8%A7%D9%84%D8%AC%D8%B1%D8%A7%D9%86%D9%8A%D8%AA%20%D9%8A%D9%85%D9%83%D9%86%20%D9%85%D8%AD%D8%AC%D8%B1%20%D8%A8%D9%8A%D8%B9%20%D9%8A%D9%88%D9%85%D9%8A%D8%A7%20%D9%81%D9%8A%20%D9%86%D9%8A%EF%BF%BD.md) 
+
+*  [بيع الرمال الوالج](https://github.com/sbmboy/ar/blob/main/46/%D8%A8%D9%8A%D8%B9%20%D8%A7%D9%84%D8%B1%D9%85%D8%A7%D9%84%20%D8%A7%D9%84%D9%88%D8%A7%D9%84%D8%AC.md) 
+
+*  [التعدين الفحم بوسينس الفرص كينيا](https://github.com/sbmboy/ar/blob/main/54/%D8%A7%D9%84%D8%AA%D8%B9%D8%AF%D9%8A%D9%86%20%D8%A7%D9%84%D9%81%D8%AD%D9%85%20%D8%A8%D9%88%D8%B3%D9%8A%D9%86%D8%B3%20%D8%A7%D9%84%D9%81%D8%B1%D8%B5%20%D9%83%D9%8A%D9%86%D9%8A%D8%A7.md) 
+
+*  [غسالة المحرك القديم ايمرسون](https://github.com/sbmboy/ar/blob/main/95/%D8%BA%D8%B3%D8%A7%D9%84%D8%A9%20%D8%A7%D9%84%D9%85%D8%AD%D8%B1%D9%83%20%D8%A7%D9%84%D9%82%D8%AF%D9%8A%D9%85%20%D8%A7%D9%8A%D9%85%D8%B1%D8%B3%D9%88%D9%86.md) 
+
+*  [ماكينة تقليع الفول السوداني](https://github.com/sbmboy/ar/blob/main/36/%D9%85%D8%A7%D9%83%D9%8A%D9%86%D8%A9%20%D8%AA%D9%82%D9%84%D9%8A%D8%B9%20%D8%A7%D9%84%D9%81%D9%88%D9%84%20%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86%D9%8A.md) 
+
+*  [كرات الطحن لمصانع bbd 4472 صور أبريل 2004 highbeam researc](https://github.com/sbmboy/ar/blob/main/55/%D9%83%D8%B1%D8%A7%D8%AA%20%D8%A7%D9%84%D8%B7%D8%AD%D9%86%20%D9%84%D9%85%D8%B5%D8%A7%D9%86%D8%B9%20bbd%204472%20%D8%B5%D9%88%D8%B1%20%D8%A3%D8%A8%D8%B1%D9%8A%D9%84%202004%20highbeam%20researc.md) 

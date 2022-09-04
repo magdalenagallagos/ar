@@ -1,0 +1,58 @@
+# وحدة غسيل الذهب derocker
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![فيديو: كيفية تنظيف الذهب في المنزل MBC](http://static.shibang-china.com/all-800x300/635.jpg)</a>
+
+## فيديو: كيفية تنظيف الذهب في المنزل MBC
+6 شباط (فبراير) 2016.لم يعد تنظيف الذهب والمجوهرات في المنزل أمراً صعباً فيمكنك في 5 دقائق تنظيف جميع مجوهراتك الذهبية، الذهب من العناصر النادرة التي تتميز.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![طريقة تنظيف الذهب وتلميعه موضوع](http://static.shibang-china.com/all-800x300/1174.jpg)</a>
+
+## طريقة تنظيف الذهب وتلميعه موضوع
+18 حزيران (يونيو) 2015.محتويات ١ الذهب ٢ طريقة تنظيف الذهب وتلميعه ٢.١ سائل تنظيف الأطباق ٢.٢ الأمونيا ٢.٣ معجون الأسنان الذهب الذهب أحد الفلزّات التي يصعب الحصول عل.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![كيفية تلميع الذهب موضوع](http://static.shibang-china.com/all-800x300/712.jpg)</a>
+
+## كيفية تلميع الذهب موضوع
+19 شباط (فبراير) 2018.إسقاط القطع الذهبية في وعاء الماء الدافئ والصابون، وتركها منقوعة لمدة 15 دقيقة.تنظيف الذهب من الأوساخ.إزالة قطعة الذهب من المحلول، وفركها باستخدام فرشاة أسنان ناعمة الشعيرات، وذلك لإزالة الأوساخ العالقة في الحواف.غسل الذهب بالماء الدافئ، وإزالة آثار الصابون من الذهب.تجفيف الذهب بقطعة من القماش الناعم، وينصح.
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+<a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![طرق تلميع الذهب موضوع](http://static.shibang-china.com/all-800x300/1489.jpg)</a>
+
+## طرق تلميع الذهب موضوع
+1 تموز (يوليو) 2015.الذهب تقتني الكثير من الإناث حول العالم أصنافاً منوّعةً من الحلي كالأساور والخواتم وغيرها، التي غالباً ما تكون مصنوعةً من الذهب بلونيه الأبيض والأصفر،
+
+<a href="https://whatsapp.shibangsoft.com/WhatsApp.php" target="_blank" title="WhatsApp">![whatsapp](http://static.shibang-china.com/icon/whatsapp.png)</a> <a href="https://ar-crusher.shibang-china.com/?from=github-ar" target="_blank">![اتصل بنا](http://static.shibang-china.com/icon/chat-ar.png)</a>
+
+---
+## اتصل بنا:
+
+**WhatsApp:**  [+8613621919955](https://whatsapp.shibangsoft.com/WhatsApp.php)
+
+**موقع (كسارة):** [https://ar-crusher.shibang-china.com/](https://ar-crusher.shibang-china.com/?from=github-ar)
+
+**موقع (مطحنة):** [https://ar-mill.shibang-china.com/](https://ar-mill.shibang-china.com/?from=github-ar)
+
+**نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?from=github-ar)
+
+## روابط ذات علاقة:
+
+*  [جديد مقلع للحجارة](https://github.com/sbmboy/ar/blob/main/84/%D8%AC%D8%AF%D9%8A%D8%AF%20%D9%85%D9%82%D9%84%D8%B9%20%D9%84%D9%84%D8%AD%D8%AC%D8%A7%D8%B1%D8%A9.md) 
+
+*  [تحميل برنامج اظهار الناس بدون ملابس اندرويد](https://github.com/sbmboy/ar/blob/main/78/%D8%AA%D8%AD%D9%85%D9%8A%D9%84%20%D8%A8%D8%B1%D9%86%D8%A7%D9%85%D8%AC%20%D8%A7%D8%B8%D9%87%D8%A7%D8%B1%20%D8%A7%D9%84%D9%86%D8%A7%D8%B3%20%D8%A8%D8%AF%D9%88%D9%86%20%D9%85%D9%84%D8%A7%D8%A8%D8%B3%20%D8%A7%D9%86%D8%AF%D8%B1%D9%88%D9%8A%D8%AF.md) 
+
+*  [فيبرو المغربل للبيع في الفلبين](https://github.com/sbmboy/ar/blob/main/36/%D9%81%D9%8A%D8%A8%D8%B1%D9%88%20%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%84%20%D9%84%D9%84%D8%A8%D9%8A%D8%B9%20%D9%81%D9%8A%20%D8%A7%D9%84%D9%81%D9%84%D8%A8%D9%8A%D9%86.md) 
+
+*  [إلى داخل، أمريكا الجنوبية](https://github.com/sbmboy/ar/blob/main/32/%D8%A5%D9%84%D9%89%20%D8%AF%D8%A7%D8%AE%D9%84%D8%8C%20%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7%20%D8%A7%D9%84%D8%AC%D9%86%D9%88%D8%A8%D9%8A%D8%A9.md) 
+
+*  [البستنة، ماليزيا](https://github.com/sbmboy/ar/blob/main/11/%D8%A7%D9%84%D8%A8%D8%B3%D8%AA%D9%86%D8%A9%D8%8C%20%D9%85%D8%A7%D9%84%D9%8A%D8%B2%D9%8A%D8%A7.md) 
+
+*  [g القوة بالاهتزاز شاشة التعدين](https://github.com/sbmboy/ar/blob/main/57/g%20%D8%A7%D9%84%D9%82%D9%88%D8%A9%20%D8%A8%D8%A7%D9%84%D8%A7%D9%87%D8%AA%D8%B2%D8%A7%D8%B2%20%D8%B4%D8%A7%D8%B4%D8%A9%20%D8%A7%D9%84%D8%AA%D8%B9%D8%AF%D9%8A%D9%86.md) 
+
+*  [مواصفات مطحنة متناهية الصغر](https://github.com/sbmboy/ar/blob/main/97/%D9%85%D9%88%D8%A7%D8%B5%D9%81%D8%A7%D8%AA%20%D9%85%D8%B7%D8%AD%D9%86%D8%A9%20%D9%85%D8%AA%D9%86%D8%A7%D9%87%D9%8A%D8%A9%20%D8%A7%D9%84%D8%B5%D8%BA%D8%B1.md) 
